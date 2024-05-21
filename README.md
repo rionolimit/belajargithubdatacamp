@@ -5,6 +5,8 @@ Do not judge me because I am still in the learning progress
 
 test linkedin learning bos
 
+test lagi bang
+
 # Let's connect at Linkedin
 
 [My Linkedin](https://www.linkedin.com/in/rio-rezky-seleng-13426221b/)
